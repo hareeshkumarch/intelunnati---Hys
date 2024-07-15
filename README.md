@@ -2,6 +2,6 @@
 
 Team mates: 
 
->> CH Hareesh Kumar
->> Yogishwar
+>> Hareesh Kumar -
+>> Yogishwar -
 >> N sravani
